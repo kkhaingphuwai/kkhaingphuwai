@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in Japanese Language.My dream is to work in Japan as a WebDeveloper. 
 - 💞️ I want to work in IT Fields and need experiences to become a profecissional in IT field.
 - 📫 My strongest point is that I can understand everything fastly,I mean i'm a quick learner.
-- my weakness point is that i am so exciting in unfriendly's environment.
+- my weakness point is that i am so excited in unfriendly's environment.
 -  
 
 <!---
